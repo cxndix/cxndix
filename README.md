@@ -24,4 +24,4 @@
 
 
 
-**_DNI criteria_** │ **c + h** │ _Int_
+**_basic DNI criteria_** │ **c + h** │ _Int_
