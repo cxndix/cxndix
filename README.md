@@ -33,4 +33,9 @@
  
 ![image](https://github.com/user-attachments/assets/f3f2b1e3-a52d-431a-b6d6-d5f5c812b560)
 
+╔═════•°☠︎°•═════╗
+
+**_THE BLACK PARADE IS DEAD!_**
+
+╚═════•°☠︎°•═════╝
 
