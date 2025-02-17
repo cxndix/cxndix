@@ -1,6 +1,6 @@
 <div align='center'> 
 
-![https://i.pinimg.com/originals/4e/90/9f/4e909f6fad578e82731f77266c4b998b.gif](https://github.com/user-attachments/assets/1c57d9af-ccd8-4793-8996-809f6b1598f8)
+![image](https://github.com/user-attachments/assets/8a8a57e2-40ee-421e-836a-aa84a7e8646b)
 
 ︶︶︶︶︶
 
@@ -18,7 +18,7 @@
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ek76o2lt4xpbl5zyjmmxtd7zxy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=5c6f99&interchange=false&bar_color=575463&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  
 
-![![image](https://github.com/user-attachments/assets/36cf4f91-855b-4263-800b-24d16266c321)
+![image](https://github.com/user-attachments/assets/3719f56d-2cf8-430a-8fa1-1068a82a73e1)
 
 ︶︶︶︶︶
 
