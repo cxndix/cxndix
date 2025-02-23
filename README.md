@@ -30,8 +30,8 @@
 
 
  ︶︶︶︶︶
- 
-![https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZXR5N2J1ZjN5OXFqOGs5MDhyNDhlMTg5bTc0eWZ1aXN1bDY5NGh1cyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/XMlxxjhwHuSAEJ7CTN/giphy.gif](https://github.com/user-attachments/assets/ef22114d-0c70-48e0-9dc9-1fb78cc326c0)
+
+![image](https://github.com/user-attachments/assets/bb7a75f0-b6d7-458e-b787-37a4a83ef94a)
 
 ╔═════•°☠︎°•═════╗
 
