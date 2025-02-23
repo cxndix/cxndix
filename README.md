@@ -2,11 +2,11 @@
 
 ╔═════•°☠︎°•═════╗
 
-**_THE BLACK PARADE IS DEAD!_**
+**_PREPARE TO FEEL REVENGE_**
 
 ╚═════•°☠︎°•═════╝
 
-![image](https://github.com/user-attachments/assets/278c00b7-7c06-49fe-8e88-d6cc05d46879)
+![image](https://github.com/user-attachments/assets/2ea24162-55cc-436b-a1f0-88474855159c)
 
 ︶︶︶︶︶
 
@@ -31,11 +31,11 @@
 
  ︶︶︶︶︶
  
-![image](https://github.com/user-attachments/assets/f3f2b1e3-a52d-431a-b6d6-d5f5c812b560)
+![https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExZXR5N2J1ZjN5OXFqOGs5MDhyNDhlMTg5bTc0eWZ1aXN1bDY5NGh1cyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/XMlxxjhwHuSAEJ7CTN/giphy.gif](https://github.com/user-attachments/assets/ef22114d-0c70-48e0-9dc9-1fb78cc326c0)
 
 ╔═════•°☠︎°•═════╗
 
-**_THE BLACK PARADE IS DEAD!_**
+**_FEEL THE ROMANCE!_**
 
 ╚═════•°☠︎°•═════╝
 
