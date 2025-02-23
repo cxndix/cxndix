@@ -20,7 +20,7 @@
 
 [Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) │ [spacehey]( https://spacehey.com/cxndix)
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ek76o2lt4xpbl5zyjmmxtd7zxy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=5c6f99&interchange=false&bar_color=575463&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
  ︶︶︶︶︶
 
