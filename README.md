@@ -12,7 +12,7 @@
 **He** / **_They_**
 
 
-[Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) │ [spacehey]( https://spacehey.com/cxndix) _wip!_
+[Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
 ![image](https://github.com/user-attachments/assets/ce92537d-5763-42f5-a087-3fd97b8aa4fc)
 
