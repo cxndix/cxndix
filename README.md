@@ -1,13 +1,15 @@
 <div align='center'> 
 
-![image](https://github.com/user-attachments/assets/6eb6c888-397f-487c-a20a-09a4bb002ea6)
+![image](https://github.com/user-attachments/assets/a16cf3b5-d548-402c-9a02-b7e4b8bf065b)
 
-![image](https://github.com/user-attachments/assets/8e98b272-2db0-44bb-8c87-2e2886d381a6)
+![image](https://github.com/user-attachments/assets/16ffbe56-f115-48ec-a108-905b9ac5918e)
 
-![cienpies2](https://github.com/user-attachments/assets/e9792eb0-adcc-4533-8019-639a08ec13f6)
+![flor1](https://github.com/user-attachments/assets/4b563333-3467-43c6-b9b0-e1429866d8f2)
 
 
-**_Alex_** : **Gee** - *_14_*
+**_Alex_** : **Gee** : **_3_**
+
+*_14_*
 
 **He** / **_They_**
 
@@ -15,18 +17,19 @@
 
 [Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
-![image](https://github.com/user-attachments/assets/ce92537d-5763-42f5-a087-3fd97b8aa4fc)
+![image](https://github.com/user-attachments/assets/2357c2f0-f503-4765-a666-12e23973292f)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ek76o2lt4xpbl5zyjmmxtd7zxy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=750000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ek76o2lt4xpbl5zyjmmxtd7zxy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=b04eb1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ✁✃✁✃✁✃✁✃✁✃✁
 
 **_basic DNI criteria_** │ **c + h** │ _Int_
 
 
-![cienpies](https://github.com/user-attachments/assets/012b6b65-8324-4bb0-a097-1ed51006bd9b)
+![flor1](https://github.com/user-attachments/assets/129a2df3-ee99-4ca7-a464-48081868de8a)
 
 
-![image](https://github.com/user-attachments/assets/8cf67efd-2265-48b6-a6cd-b081cbdcbb73)
 
-![image](https://github.com/user-attachments/assets/6eb6c888-397f-487c-a20a-09a4bb002ea6)
+![image](https://github.com/user-attachments/assets/acfa1420-d4a3-4a0c-b123-56dc716b0dc6)
+
+![image](https://github.com/user-attachments/assets/e89138a3-c6af-4e52-a9ea-b3bea1faa26e)
