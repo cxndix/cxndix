@@ -4,8 +4,7 @@
 
 ![image](https://github.com/user-attachments/assets/6562d23f-6992-40a4-b2c8-98459ecebd2b)
 
-.෴.෴.෴.෴.෴.෴.෴.෴.෴.
-
+![graveyard1](https://github.com/user-attachments/assets/79db1496-7ad2-4729-85a4-075b3e0ef614)
 
 **_Alex_** : **Gee** : **_3_**
 
@@ -25,11 +24,10 @@
 .෴.෴.෴.
 
 
-**_basic DNI criteria_** │ **c + h** │ _Int_
+**_basic DNI criteria_** │ **c + h** │ _w2i_
 
+![graveyard1](https://github.com/user-attachments/assets/4ed182ae-9038-4a8a-9744-b9cefb592584)
 
-.෴.෴.෴.෴.෴.෴.෴.෴.෴.
- 
 ![image](https://github.com/user-attachments/assets/fd6522cc-fa57-4a5c-add8-e8b1bce2cc35)
 
 ![image](https://github.com/user-attachments/assets/1f284fd4-0931-4249-bc99-60802cc9e508)
