@@ -15,7 +15,7 @@
 
 ༒ ‧ 𓂀 ‧ ༒
 
-[Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
+[Instagram](https://www.instagram.com/cxnd1x?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) | [Carrd](https://cxndix.carrd.co)
 
 ![image](https://github.com/user-attachments/assets/46089de2-915a-4a57-8ad7-497447a4bb2c)
 
