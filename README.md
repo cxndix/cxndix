@@ -8,7 +8,7 @@
 
 ![plants](https://github.com/user-attachments/assets/3aac5b02-f9f7-466a-b5dd-f7b05fcf9d40)
 
-**_Alex_** : **Gee** : **_3_**
+**_Alex_** : **Cxndix** : **_3_**
 
 *_14_*
 
