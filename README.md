@@ -24,7 +24,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ek76o2lt4xpbl5zyjmmxtd7zxy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=454545&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀｢ :umbrella: ｣﹀﹀
+﹀﹀｢ :umbrella: ｣﹀﹀﹀﹀﹀﹀﹀﹀﹀﹀
 
 **_basic DNI criteria_** │ **DNI _msi_ . _bodtf_ . _fir_ fans**
 
